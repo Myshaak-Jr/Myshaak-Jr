@@ -11,4 +11,4 @@ Hello brothers and sometimes sisters in pain. I'm Matěj Smetana (englified: Mat
 * I like low-level stuff
 * I like *8-bit* computers
 
-That's all, now thou shalt strideth and usefulness shalt grow upon thy hands!
+All hath been said, henceforth thou shalt stride and through use, greater skill shall arise in thine hands!
